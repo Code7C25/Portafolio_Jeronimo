@@ -1,2 +1,0 @@
-# Portafolio_Jeronimo
-Alumno 
